@@ -1,2 +1,2 @@
 # mesugakigenerator
-ガバガバコーディング
+おじさんWebApp化もできないんだ～♥ ざっこ〜♥ざぁ〜こ♥
